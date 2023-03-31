@@ -1,1 +1,11 @@
-# EOTL garden
+# The philosophy
+
+...
+
+# The green
+
+...
+
+# The people
+
+...
