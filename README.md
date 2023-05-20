@@ -4,7 +4,7 @@ The EOTL garden is a tucked away corner of greenery in the centre of
 Edinburgh dedicated to biodiversity, outdoor education and local community
 engagement. 
 
-<hr>
+---
 
 # The green
 
