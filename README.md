@@ -1,3 +1,9 @@
+## tl;dr
+
+The EOTL garden is a tucked away corner of greenery in the centre of 
+Edinburgh dedicated to biodiversity, outdoor education and local community
+engagement. 
+
 # The green
 
 The green constitutes ~0.5 acres of open space, tucked away at the end of a
@@ -44,8 +50,9 @@ almost 10 years. Like many people, we were finding it increasingly difficult to
 find an affordable home with enough space for our family and becoming acutely
 aware of how essential accessing safe green space is, especially with small
 children and living in tiny urban homes! It was also around this time that we
-came across a disused bowling club and green for sale and saw the opportunity
-that this could provide for both us and the local community. 
+came across a disused bowling club and green for sale and saw both the opportunity
+that this could provide for both us and the local community and the need to 
+protect the space from unwanted development.
 
 In her "normal" life, Kat is a registered veterinary nurse by profession, soon
 to be starting a Phd in the field of animal welfare science. Dominic is a
