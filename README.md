@@ -4,11 +4,13 @@ The EOTL garden is a tucked away corner of greenery in the centre of
 Edinburgh dedicated to biodiversity, outdoor education and local community
 engagement. 
 
+---
+
 # The green
 
 The green constitutes ~0.5 acres of open space, tucked away at the end of a
 residential street. It was previously the home of the Tramways Bowling Club,
-who rented the space from Lothian Busses. When the green became available in
+who rented the space from Lothian Buses. When the green became available in
 2020 we put in a bid to buy the space, in the hope of sustainably converting
 the old pavilion on the site to a home and rewilding the green. Though not the
 highest offer, we were selected by Lothian Buses on the merit of our project
