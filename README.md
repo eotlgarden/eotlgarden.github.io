@@ -16,7 +16,7 @@ the old pavilion on the site to a home and rewilding the green. Though not the
 highest offer, we were selected by Lothian Buses on the merit of our project
 and their desire to protect the space.
 
-The green is intended to provides habitats, produce food, support pollinators
+The green is intended to provide habitats, produce food, support pollinators
 of all kinds and facilitate community projects. In collaboration with local
 community charities, the Edinburgh Nature Network, ERBG, UOE biodiversity and
 soil experts, and experienced local growing groups the green will exist as a
