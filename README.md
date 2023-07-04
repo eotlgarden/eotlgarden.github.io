@@ -51,10 +51,11 @@ We (Kat and Dom) bought the green in late 2020, having lived in Leith for
 almost 10 years. Like many people, we were finding it increasingly difficult to
 find an affordable home with enough space for our family and becoming acutely
 aware of how essential accessing safe green space is, especially with small
-children and living in tiny urban homes! It was also around this time that we
-came across a disused bowling club and green for sale and saw both the opportunity
-that this could provide for both us and the local community and the need to 
-protect the space from unwanted development.
+children and in an urban environment! It was also around this time that we
+came across a disused bowling club and green for sale and saw the opportunity
+that this could provide for both us as a family and the local community. 
+Importanly, we also saw the need to protect the space from being lost to
+unwanted development.
 
 In her "normal" life, Kat is a registered veterinary nurse by profession, soon
 to be starting a Phd in the field of animal welfare science. Dominic is a
